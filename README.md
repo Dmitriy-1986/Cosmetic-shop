@@ -1,1 +1,1 @@
-https://dmitriy-1986.github.io/TestTaskSmartMediaSystem/.
+https://dmitriy-1986.github.io/Cosmetic-shop/
